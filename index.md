@@ -8,7 +8,7 @@ image: 'img/hero-no-border.jpg'
 Ponieważ wielkimi krokami zbliża się dzień Chrztu Świętego Łucji, spieszymy z przypomnieniem najważniejszych informacji.
 
 ### Kościół
-Sakrament chrztu Łucja przyjmie w&nbsp;**kościele pw.&nbsp;Bożego Ciała i&nbsp;Matki Bożej z&nbsp;Lourdes** podczas Mszy Świętej **o&nbsp;godzinie&nbsp;12:00**. Będziemy niezwykle szczęśliwi, jeśli przyjmiecie w tym dniu Komunię Świętą w jej intencji.
+Sakrament chrztu Łucja przyjmie w&nbsp;**kościele pw.&nbsp;Bożego Ciała i&nbsp;Matki Bożej z&nbsp;Lourdes** podczas Mszy Świętej **w&nbsp;niedzielę 6 października o&nbsp;godzinie&nbsp;12:00**. Będziemy niezwykle szczęśliwi, jeśli przyjmiecie w tym dniu Komunię Świętą w jej intencji.
 
 [Kliknij tu aby zobaczyć tę lokalizację na mapie](https://goo.gl/maps/ZZCeZ7eAjKyD6W638)
 
